@@ -13,4 +13,4 @@ Después de completar con éxito esta tarea, habrá creado y trabajado con Cloud
 
 [![capture-20230618140047642.png](https://i.postimg.cc/rpgZwSZH/capture-20230618140047642.png)](https://postimg.cc/94RYxqhP)
 
-
+[![capture-20230618164243602.png](https://i.postimg.cc/vB0Fx8Ft/capture-20230618164243602.png)](https://postimg.cc/Hc8PfgLr)
